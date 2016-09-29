@@ -1,0 +1,1 @@
+# adhar_wordpress
